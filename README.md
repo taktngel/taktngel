@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/j2PrG5wF/d18729f6b0a516079e96af58599fe786d0dcf9c8.gif) ***— I ALWAYS COME BACK.*** ![](https://i.postimg.cc/h4dgJCy1/69c5d03fb04b549b23d277cc09d5ad007e52b10a.gif) Feel free to copy my pony! Idgaf! Feel free to INT, No DNI for Pony Town
 
- ✦ ✧ **TAKT** OR **JHIN**  ![](https://i.postimg.cc/tRS3hcnw/50e1276b.gif) ‎ ‎ ‎ ˢʰᵉ / ₕᵢₘ  ✧ Adult  ✦‎ ‎ ‎ ‎ LITERALLY [JHIN](https://wiki.leagueoflegends.com/en-us/Jhin) IRL‎ ‎  ![](https://i.postimg.cc/rs88hgdP/IMG-0090.gif) ‎ ‎ ‎  ANGEL OTHERKIN‎
+ ✦ ✧ **TAKT** OR **JHIN**  ![](https://i.postimg.cc/tRS3hcnw/50e1276b.gif) ‎ ‎ ‎ she / him  ✧ Adult  ✦‎ ‎ ‎ ‎ LITERALLY [JHIN](https://wiki.leagueoflegends.com/en-us/Jhin) IRL‎ ‎  ![](https://i.postimg.cc/rs88hgdP/IMG-0090.gif) ‎ ‎ ‎  ANGEL OTHERKIN‎
 
 **ALSO** [WILLIAM's](https://freddy-fazbears-pizza.fandom.com/wiki/William_Afton) (+ Volo, Light, Sebastian & Zed's) **WIFE!!!**‎  ‎  ‎  ‎  ‎![](https://i.postimg.cc/3Rj8CzwG/yjl68s.gif)      ‎ ‎  ‎**ANTI-CENSORSHIP  &  YUMESHIPPER / RIAKO**  !*!* 
  
